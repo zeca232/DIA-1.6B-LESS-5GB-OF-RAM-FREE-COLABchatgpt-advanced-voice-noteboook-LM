@@ -1,1 +1,1 @@
-http://go.kitchensak.com/SePe (Colab)
+https://tpi.li/uyTQiSQukmi (Colab)
